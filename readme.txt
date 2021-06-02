@@ -1,0 +1,1 @@
+Hej, jak coś to przyciąłem te 3 największe zdjęcia w Gimpie, coby zaoszczędzić transfer :D
